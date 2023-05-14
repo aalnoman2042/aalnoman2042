@@ -1,6 +1,6 @@
 ### Hi there 👋, it's Abdullah Al Noman
 #### I am a web Devloper 
-![I am a web Devloper ](https://www.facebook.com/photo/?fbid=344442814211332&set=a.188794356442846banner.png)
+
 
 
 
